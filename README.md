@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dar1anMar1us
 - 👀 I’m interested in how the Universe works
-- 🌱 I’m currently learning anything related to web
+- 🌱 I’m currently learning anything related to IT
 - 💞️ I’m looking to collaborate on projects that improve the world
 - 📫 How to reach me on dmc.41155@gmail.com
 
